@@ -2,7 +2,7 @@
 
 ### _How can we help to guide investment in collaboration and innovation?_
 
-![Street Sharks](http://orig02.deviantart.net/01f3/f/2013/194/b/e/street_sharks_by_darkcorvus07-d6dbcc1.jpg "Street Sharks")
+_Image of clip art_
 
 The Australian Government is focusing on encouraging innovation in order to increase jobs which will be relevant to the society we live in for years to come. A key weakness of the Australian innovation network which was identified is that there are ‘few direct mechanisms to support knowledge transfer’.
 
